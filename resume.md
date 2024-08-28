@@ -1,3 +1,6 @@
+# Welcome to My GitHub Page
+This is a simple web page hosted on GitHub Pages.
+
 # Mon Nom
 
 ## Contact
