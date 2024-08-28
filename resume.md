@@ -14,11 +14,12 @@ Passionate about computers since childhood, it was only after hacking the system
 
 +237 656 896 057 / +237 679 269 071
 
-**Franck justin TALTCHOU**
+**LINKEDIN : Franck justin TALTCHOU**
 
 [GitHub Profile](https://github.com/APOPSTG)
-
 **ApopsTg**
+
+**Driving License B**
 
 ---
 
